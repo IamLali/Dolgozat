@@ -1,2 +1,2 @@
-# Dolgozat
+# Györfi Lajos
 ??
